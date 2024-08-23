@@ -23,4 +23,4 @@
 
 ### Step 3
 
-- Pour blended mixture into 16-oz glass.
+- Pour blended mixture into 16-oz glass. Topped with syrup
