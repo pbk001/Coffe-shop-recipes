@@ -7,6 +7,7 @@
 - 1 vanilla bean (or 1 Tbsp of vanilla extract)
 - 1 cup of water
 - 1 cup of sugar
+- 1kg of salt
 
 ## ICED TOASTED VANILLA SHAKEN COFFEE WITH OATMILK Ingredients
 
